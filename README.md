@@ -1,1 +1,1 @@
-# Hey!Please go to zzmblog.github.io/zzm/index.html !
+# Hey!Get out for there!
